@@ -1,0 +1,1 @@
+Every game template
